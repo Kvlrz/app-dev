@@ -23,7 +23,7 @@ This is a film which has a narrative that has been spanning a decade originating
 
 ---
 
-## **Series: The Flash”
+## **Series: The Flash**
 
 *The Flash* is the narrative whereby Barry Allen played by Grant Gustin is a forensic scientist who gains the ability to run battles after being hit by lightning. This is what disappoints most:
 
